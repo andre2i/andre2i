@@ -1,3 +1,3 @@
-Lead Principal Engineer at Atlassian
+Senior Principal Engineer at Atlassian
 
 [LinkedIn](https://www.linkedin.com/in/iacobandrei/)
